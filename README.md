@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: instagram: https://www.instagram.com/candassozturk/ linkedin: https://www.linkedin.com/in/candaş-öztürk/ 
 - ⚡ Fun fact: While thinking fun fact about myself, I realized how fabolous I am.
-- <img src="https://i.pinimg.com/736x/f2/e0/0d/f2e00d6a5ba5f0af246702946544b3e5.jpg" width="auto">
+- <img src="https://c.tenor.com/Ff0VRngr3tgAAAAC/spongebob-nickelodeon.gif" width="auto">
