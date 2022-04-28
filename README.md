@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: instagram: https://www.instagram.com/candassozturk/ linkedin: https://www.linkedin.com/in/candaş-öztürk/ 
 - ⚡ Fun fact: While thinking fun fact about myself, I realized how normal I am.
-- <img src="https://c.tenor.com/4r_KCzKSNOcAAAAd/laugh-cry.gif" width="auto">
+- <img src="https://c.tenor.com/oXP04XKFeyoAAAAC/cat-meme.gif" width="auto">
